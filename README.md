@@ -12,4 +12,4 @@ Contact:<br />
 Vicky S Raj<br />
 vickysrajswati@gmail.com<br />
 
-Note :- Uploaded this side from Learning Purpose. This side belongs to geekyshows, thank You.
+Note :- Uploaded this side from Learning Purpose.
